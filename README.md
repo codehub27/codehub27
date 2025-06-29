@@ -6,7 +6,7 @@
 
 ### 📞 Contact Information
 - **Phone:** +919002220555
-- **Email:** [storygine@gmail.com](mailto:storygine@gmail.com)
+- **Email:** [subho](mailto:subhendumete19@gmail.com)
 
 ---
 
